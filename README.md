@@ -1,1 +1,1 @@
-B1-hub-src na kub no skid
+ instead of no skid
